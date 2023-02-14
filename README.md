@@ -31,4 +31,3 @@ Esta serie esta protagonisada por Hailee Stienfield
 
 Enlace para ver la serie[The Dickinsons](https://tv.apple.com/es/show/dickinson/umc.cmc.1ogyy5s2agasxa5qztabrlykn)
 
-@MigueMat4
