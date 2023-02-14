@@ -21,6 +21,13 @@ Esta serie esta protagonisada por Hailee Stienfield
 - El romance de Emily y Sue :smiling_face_with_three_hearts:
 - Los poemas :wilted_flower: 
 
-![Esta es una segunda imagen](https://m.media-amazon.com/images/M/MV5BYmE0Y2UzNzItODk1ZS00MTc0LWFlZGUtN2Q0ZDQ4NWY4YmE2XkEyXkFqcGdeQXVyNDg4NjY5OTQ@._V1_.jpg)
+1. Personajes Principales
+    - Emily Dickinson
+    - Sue GilBert
+    - Austin Dickinson 
+    - Lavinia Dickinson 
+
+
+![Esta es una segunda imagen](https://filmdaily.co/wp-content/uploads/2021/04/dickinson-3.jpeg)
 
 Enlace para ver la serie[The Dickinsons](https://tv.apple.com/es/show/dickinson/umc.cmc.1ogyy5s2agasxa5qztabrlykn)
