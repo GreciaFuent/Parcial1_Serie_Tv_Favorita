@@ -27,7 +27,8 @@ Esta serie esta protagonisada por Hailee Stienfield
     - Austin Dickinson 
     - Lavinia Dickinson 
 
-
 ![Esta es una segunda imagen](https://filmdaily.co/wp-content/uploads/2021/04/dickinson-3.jpeg)
 
 Enlace para ver la serie[The Dickinsons](https://tv.apple.com/es/show/dickinson/umc.cmc.1ogyy5s2agasxa5qztabrlykn)
+
+@MigueMat4
